@@ -1,1 +1,2 @@
-![CREDIT CARD :star:] file:///C:/Users/denim/Downloads/Desktop%20Screenshot%202024.12.04%20-%2019.53.43.19.png
+[CREDIT CARD :star:]![Desktop Screenshot 2024 12 04 - 19 53 43 19](https://github.com/user-attachments/assets/e3b4c6a1-2e2c-4320-a78d-78554b21b500)
+
